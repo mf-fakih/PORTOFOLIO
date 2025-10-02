@@ -1,4 +1,4 @@
-![Banner Portofolio](https://via.placeholder.com/1200x300.png?text=Portofolio+Saya)  
+![Banner Portofolio](https://abudzarproject.com/fakhril/wp-content/uploads/2025/04/488566512_17979991028820342_8155552935629849251_n.webp)  
 
 # 🚀 Portofolio Saya  
 
